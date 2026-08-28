@@ -33,7 +33,12 @@ wie wäre ich besser vorgegangen.
 
 
 
-### Feinplanung nächster LA
+### Planung nächste LA (04.09.2026)
+
+[] 
+[]
+[]
+
 
 
 
