@@ -18,6 +18,16 @@ Heute möchte ich, im Vergleich zur letzten Woche, die zeit mit den Modulen bess
 
 ### Reflexion
 
+Was gut gelaufen?
+Probleme und wie gelöst?
+was merken?
+wie wäre ich besser vorgegangen.
+
+
+
+
+### Reflexion für nächste LA
+
 
 
 
