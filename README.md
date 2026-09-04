@@ -23,16 +23,15 @@ Heute konnte ich die Zeiteinteilung gut benutzen und habe diese auch gut einhalt
 
 ### Reflexion für nächste LA
 
-
-
+Ich sollte in Zukunft auf mehrere Sachen im Lernatelier zugehen, anstatt nur auf etwas.
 
 
 
 ### Planung nächste LA (04.09.2026)
 
-
-
-
+- Durchgehen aller bereits gelösten Missionen, um mich für die Prüfung vorzubereiten.
+- An Mission 6 arbeiten und fertig machen.
+- Wenn mit Mission 6 fertig, an Modul 431 weiterarbeiten.
 
 
 
