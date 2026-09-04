@@ -38,6 +38,43 @@ Ich sollte in Zukunft auf mehrere Sachen im Lernatelier zugehen, anstatt nur auf
 
 
 
+# Nicolaj-Lernatelier- 04.09.26
+
+
+### Grobe Planung
+
+### Noten
+-
+
+### Veränderungen
+Letzte Woche habe ich probiert, meine LA Zeit besser einzuteilen, um an einer Lektionskette mehrere Sachen erledigt gemacht zu haben. Das hat relativ gut geklappt, deshalb werde ich das heute umso besser einteilen, damit ich schnell und orientiert vorankomme.
+
+### Generelle Ziele
+
+- Ich gehe zuerst alle anderen Missionen durch, die ich bereits erledigt habe, um zu wissen, was ich alles bereits gelernt habe und was vergessen. Ich mache das, um mich für die anstehende Prüfung vorzubereiten.
+- Danach werde ich an Mission 6 arbeiten, und wenn möglich gelöst haben. Wenn dies der Fall sein sollte, werde ich bis ca. 10:30 daran arbeiten.
+- Nach 10:30 werde ich an Modul 431 arbeiten. Ich setze mir hier keine konkrete Aufgabe, sondern einfach so weit kommen wie möglich.
+- Zwischen 9:00 und 10:00 werde ich eine Pause einlegen.
+
+### Reflexion
+
+ 
+
+### Reflexion für nächste LA
+
+
+
+
+
+### Planung nächste LA (04.09.2026)
+
+
+
+
+
+
+
+
 
 
 
