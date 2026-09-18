@@ -113,7 +113,8 @@ Ich sollte in Zukunft auf mehrere Sachen im Lernatelier zugehen, anstatt nur auf
 
 
 
-# Nicolaj-Lernatelier- 11.09.26
+
+# Nicolaj-Lernatelier - 11.09.26
 
 
 ### Grobe Planung
@@ -122,20 +123,47 @@ Ich sollte in Zukunft auf mehrere Sachen im Lernatelier zugehen, anstatt nur auf
 Ich habe in der OBA Prüfung eine 5,5 bekommen.
 
 ### Veränderungen
-Heute möchte ich ein Projekt anfangen. Dafür werde ich Ideen sammeln und jenach dem auf was ich gerade am meisten Lust habe, werde ich machen.
-### Generelle Ziele
+Heute möchte ich mit dem Projekt anfangen und schon Überlegungen gemacht haben, wie ich dies strukturieren soll.
 
 ### Generelle Ziele
 
 - Am Anfang der LA werde ich an Mission 7 arbeiten und fertig machen.
 - Um ca. 10:00 werde ich eine Pause einlegen.
-- nach der Pause werde ich mit meinem neuen Projekt starten.
+- nach der Pause werde ich mit meinem neuen Projekt starten
+
+### Reflexion
+
+Ich werde als Projekt mit einem Taschenrechner starten. Mission 7 wurde erledigt, doch mit dem Projekt hatte ich leider keine Zeit zum arbeiten, da ich mehr Zeit bei Mission 7 gebraucht habe, bin aber trotzdem nicht fertig geworden.
+
+### Planung nächste LA (18.09.2026)
+
+- Mission 7 endgültig fertig
+- Pause einlegen m 10:00
+- An Projekt arbeiten nach der Pause
+
+
+# Nicolaj-Lernatelier- 18.09.26
+
+
+### Grobe Planung
+
+### Noten
+Ich habe in der OBA Prüfung eine 5,5 bekommen.
+
+### Veränderungen
+Ich werde mit der Strukturierung des Projekts anfangen, damit ich weiss ich wie ich das Programm gestalten soll.
+
+### Generelle Ziele
+
+- Am Anfang der LA werde ich an Mission 7 arbeiten und endgültig fertig machen.
+- Um ca. 10:00 werde ich eine Pause einlegen.
+- nach der Pause werde ich an meinem Projekt arbeiten.
 
 ### Reflexion
 
 
+### Planung nächste LA (25.09.2026)
 
-### Planung nächste LA (18.09.2026)
 
 
 
