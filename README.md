@@ -143,7 +143,7 @@ Ich werde als Projekt mit einem Taschenrechner starten. Mission 7 wurde erledigt
 - An Projekt arbeiten nach der Pause
 
 
-# Nicolaj-Lernatelier- .09.26
+# Nicolaj-Lernatelier- 11.09.26
 
 
 ### Grobe Planung
@@ -163,7 +163,7 @@ Ich werde mit der Strukturierung des Projekts anfangen, damit ich weiss ich wie 
 ### Reflexion
 Ich habe grundsätzlich gut und konzentriert gearbeitet und konnte all meine Ziele für heute, erledigen. Manchmal lasse ich mich ablenke, aber ich versuche weiterhin konzentrierte arzubeiten.
 
-### Planung nächste LA (25.09.2026)
+### Planung nächste LA (18.09.2026)
 
 - Mission 9 fertig
 - Pause um 10:00
@@ -192,7 +192,7 @@ Konzentrierter und Effektiver arbeiten als letzte Woche ist heute mein Ziel.
 
 
 
-### Planung nächste LA (18.09.2026)
+### Planung nächste LA (25.09.2026)
 
 - Mission 7 endgültig fertig
 - Pause einlegen m 10:00
