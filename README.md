@@ -199,7 +199,7 @@ Konzentrierter und Effektiver arbeiten als letzte Woche ist heute mein Ziel.
 - An Projekt arbeiten nach der Pause
 
 
-# Nicolaj-Lernatelier- 18.09.26
+# Nicolaj-Lernatelier- 25.09.26
 
 
 ### Grobe Planung
