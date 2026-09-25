@@ -114,7 +114,8 @@ Ich sollte in Zukunft auf mehrere Sachen im Lernatelier zugehen, anstatt nur auf
 
 
 
-# Nicolaj-Lernatelier - 11.09.26
+
+# Nicolaj-Lernatelier - 18.09.26
 
 
 ### Grobe Planung
@@ -142,6 +143,62 @@ Ich werde als Projekt mit einem Taschenrechner starten. Mission 7 wurde erledigt
 - An Projekt arbeiten nach der Pause
 
 
+# Nicolaj-Lernatelier- .09.26
+
+
+### Grobe Planung
+
+### Noten
+Ich habe in der OBA Prüfung eine 5,5 bekommen.
+
+### Veränderungen
+Ich werde mit der Strukturierung des Projekts anfangen, damit ich weiss ich wie ich das Programm gestalten soll.
+
+### Generelle Ziele
+
+- Am Anfang der LA werde ich an Mission 7 arbeiten und endgültig fertig machen.
+- Um ca. 10:00 werde ich eine Pause einlegen.
+- nach der Pause werde ich an meinem Projekt arbeiten.
+
+### Reflexion
+Ich habe grundsätzlich gut und konzentriert gearbeitet und konnte all meine Ziele für heute, erledigen. Manchmal lasse ich mich ablenke, aber ich versuche weiterhin konzentrierte arzubeiten.
+
+### Planung nächste LA (25.09.2026)
+
+- Mission 9 fertig
+- Pause um 10:00
+- Projekt arbeiten
+
+
+
+# Nicolaj-Lernatelier - 18.09.26
+
+
+### Grobe Planung
+
+### Noten
+Ich habe in der OBA Prüfung eine 5,5 bekommen.
+
+### Veränderungen
+Konzentrierter und Effektiver arbeiten als letzte Woche ist heute mein Ziel.
+
+### Generelle Ziele
+
+- Am Anfang der LA werde ich an Mission 9 arbeiten und fertig machen.
+- Um ca. 10:00 werde ich eine Pause einlegen.
+- nach der Pause werde ich an meinem neuen Projekt arbeiten
+
+### Reflexion
+
+
+
+### Planung nächste LA (18.09.2026)
+
+- Mission 7 endgültig fertig
+- Pause einlegen m 10:00
+- An Projekt arbeiten nach der Pause
+
+
 # Nicolaj-Lernatelier- 18.09.26
 
 
@@ -160,9 +217,13 @@ Ich werde mit der Strukturierung des Projekts anfangen, damit ich weiss ich wie 
 - nach der Pause werde ich an meinem Projekt arbeiten.
 
 ### Reflexion
-
+Ich habe grundsätzlich gut und konzentriert gearbeitet und konnte all meine Ziele für heute, erledigen. Manchmal lasse ich mich ablenke, aber ich versuche weiterhin konzentrierte arzubeiten.
 
 ### Planung nächste LA (25.09.2026)
+
+- Mission 10 fertig
+- Pause um 10:00
+- Projekt arbeiten
 
 
 
