@@ -74,7 +74,7 @@ Ich habe mich über das LA besser informiert und ich sollte das LA mehr für Pro
 
 
 
-# Nicolaj-Lernatelier-28.08.26
+# Nicolaj-Lernatelier-11.09.26
 Checkliste
 
 ### Grobe Planung
