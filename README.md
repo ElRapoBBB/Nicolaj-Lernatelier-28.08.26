@@ -228,6 +228,37 @@ Ich habe grundsätzlich gut und konzentriert gearbeitet und konnte all meine Zie
 
 
 
+# Nicolaj-Lernatelier- 23.10.26
+
+
+### Grobe Planung
+
+### Noten
+Ich habe in der OBA Prüfung eine 5,5 bekommen.
+
+### Veränderungen
+Heute werde ich nur am Projekt arbeiten, da ich vorankommen möchte.
+
+### Generelle Ziele
+
+- Erste Schritte der Planung fertig
+- Um ca. 10:00 werde ich eine Pause einlegen.
+- nach der Pause werde ich an meinem weiter Projekt arbeiten.
+
+### Reflexion
+Ich habe mich manchmal ablenken lassen, ich möchte das nächstes Mal besser machen.
+
+### Planung nächste LA (30.10.2026)
+
+- an den Nächsten Schritten des Projekts arbeiten
+- Mind. 2-3 Schritte fertig
+- Evtl. Repetition aller Missionen als Vorbereitung für anstehende Prüfung.
+  
+
+
+
+
+
 
 
 
